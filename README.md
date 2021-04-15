@@ -2,7 +2,7 @@
 
 Please direct any questions to: Rhea Ehresmann (rhea.ehresmann@alaska.gov) <img src="http://acuasi.alaska.edu/sites/default/files/inline-images/fishandgame_small.png" width = "75" height = "75"> 
 
-**Source:** *Olson, A., J. Stahl, M. Vaughn, K. Carroll, and A. Baldwin. 2017. Annual management report for the Southeast Alaska and Yakutat groundfish fisheries, 2017. Alaska Department of Fish and Game, Fishery Management Report No. 17-54, Anchorage.*
+**Source:** *Ehresmann, R.,  A. Baldwin, M. Bargas, E. Ebert, M. Leeseberg, E. Teodori, and K. Wood. 2021.  Management report for the Southeast Alaska and Yakutat groundfish fisheries,   2017–2020. Alaska Department of Fish and Game,Fishery Management Report No. 21-02,  Anchorage.*
 
 ## Commercial Fishery Development and History
 State managed fisheries currently occur in NSEI (Chatham Strait) and SSEI (Clarence Strait and adjacent waters of Dixon Entrance). Sablefish have been harvested in the internal waters of Southeast Alaska since the early 1900s. Prior to the 1940s, sablefish were primarily landed as bycatch in the halibut fishery. Halibut longline gear was modified in the late 1940s to target sablefish. Unitl the 1970s, harvest levels fluctuated widely due to low price and better opportunities in other fisheries. Pot gear was first introduced in 1970 in Clarence Strait and Dixon Entrance areas and the pot fishery accounted for 33% of the total harvest in the early 1970s. In 1981, the NSEI fishery was restricted to longline gear only, but pot gear was still allowed in the SSEI subdistrict.
